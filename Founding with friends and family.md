@@ -1,0 +1,10 @@
+Founders who decide to mix business and social relationships despite these dangers should at least take proactive steps to protect themselves and the startup:
+• **Compartmentalize relationships.** If the team’s size allows, avoid having cofounders report to their relative or close friend. Instead, have the cofounder report to another senior executive, keeping the private and professional relationships separate.
+• **Envision negative scenarios**. Think about the obstacles—such as family issues, medical crises, and legal problems—that could affect a cofounder’s ability to work on the startup. Resist the natural inclination of many founders to “stay positive,” focusing on only desirable or “expected” scenarios.
+• **Create a disaster plan**. Put in writing a plan of action for the worst-case scenarios, such asan irresolvable business conflict or a breakup in the social relationship. Also, make it clear who has the final say in an impasse. Sign an exit contract that will apply if a worst-case scenario develops.
+• **Force sensitive discussions**. Make a long-term policy of being open and honest about every personal issue that arises in the process of working together. Increasing the likelihood of discussing sensitive issues—by establishing a mechanism for it—can reduce (though certainly not eliminate) the Playing-with-Fire Gap. Resist the natural inclination to put off or avoid discussions of difficult issues in the hope that they will solve themselves.
+• **Involve a referee**. In order to prevent a professional disagreement from getting personal, write up a memo on the issue at hand and copy the entire executive team, as Sittercity’s team would do in accordance with its “ Geneva Convention.” This forces others to get involved and puts the emphasis on the issue itself rather than on the people advancing the issue. Or, usea mutual mentor or impartial advisor to mediate
+
+#entrepreneur #leadership/decisionmaking #leadership 
+
+Ref: Founder's dilemmas. Chp 4
