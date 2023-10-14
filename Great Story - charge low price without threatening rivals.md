@@ -1,0 +1,3 @@
+In 1992 GM changed the game. It teamed up with Household bank, a major issuer of co-branded credit cards and, together, they launched the GM card under the MasterCard umbrella. Cardholders would earn credit equal to 5% of their charge volume, which could be applied to the purchase or lease of any new GW car or truck.
+
+#leadership #entrepreneur #strategy/corporate #strategy/competitiveadvantage #strategy/value 

@@ -1,0 +1,5 @@
+Taylor had a window of opportunity. The majors adopted a wait-and-see stance. Liquid soap was still unproven  and they preferred to let softsoap be the ginea pig. Once they saw Softsoap success, the majors decided to do their own test-marketing. A suprise awaited them.
+
+An essential part of any liquid-soap is the little plastic pump, and Taylor realized that there were just two suppliers. In a  bet-the-company move, he locked up both suppliers' total annual production by ordering 100 million pumps. Even at 12 cent apiece, thes was a $12 million order, more than Minnetonka's net worth. Capturing supply of pumps gave Taylor another eighteen to 24 months. Softsoap had bought some more time to build brand loyalty and this establish its added value.
+
+#operationsmanagement/supplychain #entrepreneur/innovation #strategy/competitiveadvantage #marketing/customervalue #strategy/newmarket #greatstory #leadership/negotiation #leadership/decisionmaking 
