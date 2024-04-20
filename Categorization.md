@@ -4,6 +4,8 @@ For things: solids, liquids, gases
 
 But what if there a solid, that had always the same shape and color, starts coming in another shape or color... that can spark unexpected consumer behaviour.
 
+Thus research your market before commiting to a long term exclusivity contract
+
 Ref: Different: Escaping the Competitive Herd by Youngme Moon. Chapter 6
 
 #strategy/competitiveadvantage #marketing/innovation #entrepreneur/innovation #leadership/customerrelationship #marketing/customervalue #marketing/competitiveadvantag 
