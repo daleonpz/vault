@@ -10,4 +10,4 @@ and Repeat...
 
 Ref: https://www.lennysnewsletter.com/p/how-to-accelerate-growth-by-focusing
 
-#entrepreneur/innovation #entrepreneur #marketing/customervalue 
+#entrepreneur/innovation #entrepreneur #marketing/customervalue #design 
