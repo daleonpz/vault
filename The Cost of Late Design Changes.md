@@ -1,0 +1,3 @@
+Changes in the design process become exponentially more expensive as development progresses. Early-stage changes may require significant engineering effort but avoid costly alterations to hardware, tooling, and documentation. For example, a change costing $1,000 in the design phase could escalate to $10,000 during product refinement and exceed $1,000,000 if made after production, due to expenses in tooling, sales, and customer goodwill.
+
+#design #product/design #product/development #operationsmanagement/supplychain #strategy/competitiveadvantage #entrepreneur/innovation 
